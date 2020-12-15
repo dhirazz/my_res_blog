@@ -1,0 +1,1 @@
+# my_res_blog
